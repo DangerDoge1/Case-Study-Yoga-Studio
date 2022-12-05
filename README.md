@@ -1,1 +1,1 @@
-# Case-Study-Yoga-Studio
+# Case-Study-Yoga
